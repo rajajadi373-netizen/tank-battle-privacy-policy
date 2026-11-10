@@ -1,0 +1,1 @@
+# tank-battle-privacy-policy
